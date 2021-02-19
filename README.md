@@ -1,1 +1,1 @@
-# hello-world
+# hello-world my name is Carolyn, I am a Multimedia/Graphic Designer and seasoned Marketing professional. I create visual messaging that promotes brand awareness to exceed marketing and sales goals. I also sing and strum chords to accompany myself. The multimedia digital artwork I develop on my own is branded  "strumma~grl designs".
